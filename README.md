@@ -1,0 +1,1 @@
+# sosyal-bilgiler-soru-bankasi-tematik-6-sinif-test
